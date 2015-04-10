@@ -43,5 +43,10 @@ NA STROVE [網友推介](http://bbs.qyer.com/thread-789231-1.html)
 美食
 ---
 
-洞穴餐廳 [網友推介](http://www.douban.com/note/228172351/)
-－ 烤肘子 (需預約，發邮件)
+洞穴餐廳KRČMA V ŠATLAVSKÉ [網友推介](http://www.douban.com/note/228172351/) (需預約，發邮件)
+
+從斯沃諾斯基廣場上information旁的拱門進去就可以找到
+
+- 烤肘子
+- garlic soup in bread
+- chicken wings
